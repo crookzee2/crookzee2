@@ -10,3 +10,4 @@ Some of my previous work and professional experiences include Graphic Design, We
 
 In my personal life, I have a great appreciation for the Arts and frequent museums and try my best to express my individualism with photography and fine arts.
 
+![Matrix](https://wmmichaelcrook.com/images/matrix.png)
